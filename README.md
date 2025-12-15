@@ -1,0 +1,1 @@
+# Testar-rapido-nao-e-testar-mal.-E-testar-com-inteligencia
